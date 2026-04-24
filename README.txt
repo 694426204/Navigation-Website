@@ -10,7 +10,7 @@
 
 绝世科技  www.baidu.com
 
-网址发布页  www.dkewl.cn
+网址发布页  www.baidu.com
 
 会员交流群   666666666
 
